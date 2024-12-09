@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **ML&DL**
 
-- 📫 How to reach me **dohung6708@gmail.com**
+- 📫 How to reach me **hung.beanstalk@gmail.com**
 
 - ⚡ Fun fact **I like to stalk**
 
